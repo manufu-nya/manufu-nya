@@ -1,3 +1,4 @@
-A trans demigirl trying to make things.
+I don't do stuff on here.
 
-Everything: [Codeberg](https://codeberg.org/manufu)
+Other platforms:<br>
+[Codeberg](https://codeberg.org/manufu)
